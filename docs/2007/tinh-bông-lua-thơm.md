@@ -1,0 +1,19 @@
+---
+title: "tình bông lúa thơm"
+date: 26/07/2007
+author: Hoàng-Ân
+---
+
+# tình bông lúa thơm
+
+tình bông lúa thơm
+...phù-sa đắp-đỗi hai bờ...anh bên bến bồi, riêng em bên bến lở, ngồi gọi đò ngang...anh đò dọc trôi xuôi...dòng sông quê-hương thơm ngây ký-ức, hoa lục-bình tím ngắt mối tình thơ, chợt hoàng-hôn mây cũng gọi mầu cũ dàn bằng-lăng...nhớ xưa em thích ngòi lá tre, anh làm thơ bằng ngòi bút mực bầu...em yêu mầu mực tím nên anh pha cho vừa nỗi-niềm thương...
+...mối tình trẻ thơ ngọt như chuối mật trộn xôi vò, bùi như khoai lùi bếp rạ vườn sau...thương làm sao hương tóc em thơm bồ-kết với bưởi trắng cùi ngây...chợt nhớ khi em dọn ra tỉnh thành như Nguyễn Bính thở-than: "Hôm qua em ra tỉnh về...hương đồng gió nội bay đi ít nhiều..."
+...ôi, cánh đồng xưa trắng cánh cò thoải nước mây...nhớ bông lúa thơm hai mùa chiêm...tiếng hò ai lẩy vọng đường trời mây xế tím, cam, hồng...mái tóc xưa giờ như mầu nắng xế thôn xưa...ôi, mối tình bông lúa vẫn còn thơm trong ký-ức đã mịt-mùng hư-ảnh...
+...nơi phố-thị đèn xe lóa mắt...chợt chiều nay thèm hương lúa tình xưa...
+
+tình bông lúa thơm
+...phù-sa đắp-đỗi hai bờ...anh bên bến bồi, riêng em bên bến lở, ngồi gọi đò ngang...anh đò dọc trôi xuôi...dòng sông quê-hương thơm ngây ký-ức, hoa lục-bình tím ngắt mối tình thơ, chợt hoàng-hôn mây cũng gọi mầu cũ dàn bằng-lăng...nhớ xưa em thích ngòi lá tre, anh làm thơ bằng ngòi bút mực bầu...em yêu mầu mực tím nên anh pha cho vừa nỗi-niềm thương...
+...mối tình trẻ thơ ngọt như chuối mật trộn xôi vò, bùi như khoai lùi bếp rạ vườn sau...thương làm sao hương tóc em thơm bồ-kết với bưởi trắng cùi ngây...chợt nhớ khi em dọn ra tỉnh thành như Nguyễn Bính thở-than: "Hôm qua em ra tỉnh về...hương đồng gió nội bay đi ít nhiều..."
+...ôi, cánh đồng xưa trắng cánh cò thoải nước mây...nhớ bông lúa thơm hai mùa chiêm...tiếng hò ai lẩy vọng đường trời mây xế tím, cam, hồng...mái tóc xưa giờ như mầu nắng xế thôn xưa...ôi, mối tình bông lúa vẫn còn thơm trong ký-ức đã mịt-mùng hư-ảnh...
+...nơi phố-thị đèn xe lóa mắt...chợt chiều nay thèm hương lúa tình xưa...

@@ -1,0 +1,15 @@
+---
+title: "Nốt Chùng"
+date: 22/07/2007
+author: Hoàng-Ân
+---
+
+# Nốt Chùng
+
+Nốt Chùng
+     Luân nghiêng người, chiếc đàn ghi-ta ôm trong lòng như một người tình dễ tính, mặc cho những ngón tay chàng tha-hồ lẩy bật nên những nốt âm-ba run-rẩy, như từng giọt âm-thanh rỏ vào không-gian.  Hôm nay Luân chợt nhớ đến Trâm và những ngày hai đứa còn thân với nhau, chàng thường đàn cho Trâm hát những bài nhạc tình của Trịnh Công Sơn.  Không có một người Việt-Nam mê nhạc mà không yêu quý nhạc của chàng nhạc-sĩ tài-hoa và có lòng ấy!  Đã bốn năm rồi Trâm biệt tin.  Chợt hôm qua tình-cờ Luân gặp lại Trâm tại nhà của Ngữ, chàng mới biết Trâm đã lập gia-đình và theo chồng sang Pháp ở.  Trông Trâm tròn-trặn chứ không vóc gầy dáng hạc như ngày xưa nữa. Hỏi thăm, Luân mới biết Trâm đã có một đứa con trai lên ba.  Trâm có vẻ mãn-nguyện và hạnh-phúc.  Trâm nhắc lại Thùy và hỏi Luân chuyện giữa Luân với Thùy đã đến đâu rồi.  Luân cho Trâm biết Thùy bây giờ đã thay-đổi hẳn và đã dọn về Việt-Nam ở với một tay chơi trống cho một ban nhạc Rock ở Sài-Gòn. 
+     Sáng nay trời mây mù.  Những cơn mưa thảng-hoặc lúc tuôn xối-xả rồi gió lại thổi vùng mây xám đi, vẹt một khoảng nắng lên chơi-vơi.  Luân cúi xuống trên cây đàn chung-thủy với tiếng lòng chàng.  Như thời-tiết, lòng người thay đổi như mây đổi thể.  Chỉ có cây đàn của chàng vẫn vừa tay ấp với những khi chàng tìm đến với âm-thanh...Hôm nay, Luân chỉ có thể gẩy sâu những nốt đàn chùng.  "Từng người tình bỏ ta đi như những dòng sông nhỏ...ôi, những dòng sông nhỏ...lời hẹn thề là những cơn mơ..."
+
+Nốt Chùng
+     Luân nghiêng người, chiếc đàn ghi-ta ôm trong lòng như một người tình dễ tính, mặc cho những ngón tay chàng tha-hồ lẩy bật nên những nốt âm-ba run-rẩy, như từng giọt âm-thanh rỏ vào không-gian.  Hôm nay Luân chợt nhớ đến Trâm và những ngày hai đứa còn thân với nhau, chàng thường đàn cho Trâm hát những bài nhạc tình của Trịnh Công Sơn.  Không có một người Việt-Nam mê nhạc mà không yêu quý nhạc của chàng nhạc-sĩ tài-hoa và có lòng ấy!  Đã bốn năm rồi Trâm biệt tin.  Chợt hôm qua tình-cờ Luân gặp lại Trâm tại nhà của Ngữ, chàng mới biết Trâm đã lập gia-đình và theo chồng sang Pháp ở.  Trông Trâm tròn-trặn chứ không vóc gầy dáng hạc như ngày xưa nữa. Hỏi thăm, Luân mới biết Trâm đã có một đứa con trai lên ba.  Trâm có vẻ mãn-nguyện và hạnh-phúc.  Trâm nhắc lại Thùy và hỏi Luân chuyện giữa Luân với Thùy đã đến đâu rồi.  Luân cho Trâm biết Thùy bây giờ đã thay-đổi hẳn và đã dọn về Việt-Nam ở với một tay chơi trống cho một ban nhạc Rock ở Sài-Gòn. 
+     Sáng nay trời mây mù.  Những cơn mưa thảng-hoặc lúc tuôn xối-xả rồi gió lại thổi vùng mây xám đi, vẹt một khoảng nắng lên chơi-vơi.  Luân cúi xuống trên cây đàn chung-thủy với tiếng lòng chàng.  Như thời-tiết, lòng người thay đổi như mây đổi thể.  Chỉ có cây đàn của chàng vẫn vừa tay ấp với những khi chàng tìm đến với âm-thanh...Hôm nay, Luân chỉ có thể gẩy sâu những nốt đàn chùng.  "Từng người tình bỏ ta đi như những dòng sông nhỏ...ôi, những dòng sông nhỏ...lời hẹn thề là những cơn mơ..."

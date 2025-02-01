@@ -1,0 +1,19 @@
+---
+title: "Sweet Sojourners In The Realm Of Love"
+date: 14/01/2007
+author: Hoàng-Ân
+---
+
+# Sweet Sojourners In The Realm Of Love
+
+Sweet Sojourners In The Realm Of Love
+Dearest Soul Mate, Hoài Phương...
+     The heart that loves suffers! Suffering may seem unreal, made up stuff to other discerning eye: yet one is the main character in one's story and whose story is not without heartaches?  Hope is a veil of shadowy substance: even in the darkest moment of the heart, hope prevails though is neither felt nor heard: but hope is so thin an Ariande thread that in the darkness the agnonizing soul can't feel it in the cave of heartaches.
+     The colors of the outside world are shaded by the looking glass of emotions!  How unreliable it is to believe in it!  But though no one trusts in her emotions, no one can distinguish herself from the upsurge of these powerful tyrants that rage from the abyss of the mysterious soul!  Some says one should not trust in the searching after the heart for it wants so strongly yet at the same time resists the source!  I am sure those who say it is all in the mind as for the cause of my happiness: yet, how can I forget past love, past attachments, and past dreams??  The ones who sever the loving ties cannot be persuaded to give any longer; still, how can I be the partner of this severing??  To forgive is easier than to forget, and the joy that was shared only squeezes the present broken heart with tenacious cling to precious memories.
+     Most people love to receive love from the strong, but is the definition of strength defines abandonment and forsakening of love itself??  Or is the sufferer because of too much loving and still dares to wade in her very suffering without turning her face away because of pain the truly courageous?? Does the one who squirms in the nightmares of loving too much, weakened with tears: her tears the purifying magic of True Love: and such is the real pearls of the daring strength to continue to love??
+
+Sweet Sojourners In The Realm Of Love
+Dearest Soul Mate, Hoài Phương...
+     The heart that loves suffers! Suffering may seem unreal, made up stuff to other discerning eye: yet one is the main character in one's story and whose story is not without heartaches?  Hope is a veil of shadowy substance: even in the darkest moment of the heart, hope prevails though is neither felt nor heard: but hope is so thin an Ariande thread that in the darkness the agnonizing soul can't feel it in the cave of heartaches.
+     The colors of the outside world are shaded by the looking glass of emotions!  How unreliable it is to believe in it!  But though no one trusts in her emotions, no one can distinguish herself from the upsurge of these powerful tyrants that rage from the abyss of the mysterious soul!  Some says one should not trust in the searching after the heart for it wants so strongly yet at the same time resists the source!  I am sure those who say it is all in the mind as for the cause of my happiness: yet, how can I forget past love, past attachments, and past dreams??  The ones who sever the loving ties cannot be persuaded to give any longer; still, how can I be the partner of this severing??  To forgive is easier than to forget, and the joy that was shared only squeezes the present broken heart with tenacious cling to precious memories.
+     Most people love to receive love from the strong, but is the definition of strength defines abandonment and forsakening of love itself??  Or is the sufferer because of too much loving and still dares to wade in her very suffering without turning her face away because of pain the truly courageous?? Does the one who squirms in the nightmares of loving too much, weakened with tears: her tears the purifying magic of True Love: and such is the real pearls of the daring strength to continue to love??

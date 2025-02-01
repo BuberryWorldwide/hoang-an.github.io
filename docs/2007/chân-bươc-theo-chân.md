@@ -1,0 +1,25 @@
+---
+title: "Chân Bước Theo Chân"
+date: 06/09/2007
+author: Hoàng-Ân
+---
+
+# Chân Bước Theo Chân
+
+Hoàng-Ân
+
+Chân Bước Theo Chân
+
+     Từ buổi sáng thức dậy còn bàng-hoàng trong dư-âm giấc mơ cuối, tôi đặt hai bàn chân trên mặt đất, và cho đến khi lên giường nằm ngủ, hai bàn chân tôi đưa tôi qua lại suốt một ngày.  Gót chân này bước đến rồi gót chân kia bước lên...thành một cuộc hành-trình dù trong nhà hay ngoài ngõ.  Mặt đất vững-vàng giữa phố-thị thuộc không-thời cưng-dưỡng tâm-linh ủy-mị, ươn-hèn của tôi.  Những khát-khao du-lịch thuở mới lớn: thèm chu-du sang Úc, sang Phi...từ khi định-cư ở xứ đại-cường-quốc Hoa-Kỳ là quê-hương thứ hai:  Ở mãi chẳng còn háo-hức mộng du-lịch, cho dù phần đông những người ở các quốc-gia đệ tam thế-giới ai cũng mơ giấc mơ hão-huyền của tiền rừng bạc biển tô bôi Mỹ-quốc như một thiên-đàng vật-chất.  Như loài kim-phượng từ thiên-đường kim-chi ngọc-diệp của tâm-tưởng thảng-hoặc rơi vào cõi thiên-nhiên của cây lá và suối trong, lâu dần giản-dị-hóa và lông kim-ngân trở nên tươi mát thành lông tơ mịn: những ngóng đợi chú-trọng vào những cấp-thiết của ăn và mặc, hai bàn chân tôi quẩn-quanh trong một góc phố im-ả và cõi giới tâm-thức đòi-hỏi sự chiêm-nghiệm phức-tạp của liên-hệ người và người.  Ý-thức lặn sâu vào trong cõi tiềm-thức quên hẳn hướng bước của hai bàn chân: chợt sáng nay hai bàn chân tôi gọi tôi: "Đã định hướng được những bước chân bước tới chưa?"  Đi đâu thì cũng đến lúc phải về: định-mệnh cho cùng lắm được khoảng dưới "ba vạn sáu nghìn ngày".  Đã nửa đời người tôi mới ý-thức được sự cần-thiết của những bước đi của mình trên mặt của hành-tinh xanh đầy dẫy thị-phi, mặc-dù vũ-trụ vô-biên vẫn nung nguồn lửa ngùn-ngụt chẳng cần ai biết đến.  Cảm ơn hai bàn chân còn vững bước đi.
+
+Hoàng-Ân
+
+Chân Bước Theo Chân
+
+     Từ buổi sáng thức dậy còn bàng-hoàng trong dư-âm giấc mơ cuối, tôi đặt hai bàn chân trên mặt đất, và cho đến khi lên giường nằm ngủ, hai bàn chân tôi đưa tôi qua lại suốt một ngày.  Gót chân này bước đến rồi gót chân kia bước lên...thành một cuộc hành-trình dù trong nhà hay ngoài ngõ.  Mặt đất vững-vàng giữa phố-thị thuộc không-thời cưng-dưỡng tâm-linh ủy-mị, ươn-hèn của tôi.  Những khát-khao du-lịch thuở mới lớn: thèm chu-du sang Úc, sang Phi...từ khi định-cư ở xứ đại-cường-quốc Hoa-Kỳ là quê-hương thứ hai:  Ở mãi chẳng còn háo-hức mộng du-lịch, cho dù phần đông những người ở các quốc-gia đệ tam thế-giới ai cũng mơ giấc mơ hão-huyền của tiền rừng bạc biển tô bôi Mỹ-quốc như một thiên-đàng vật-chất.  Như loài kim-phượng từ thiên-đường kim-chi ngọc-diệp của tâm-tưởng thảng-hoặc rơi vào cõi thiên-nhiên của cây lá và suối trong, lâu dần giản-dị-hóa và lông kim-ngân trở nên tươi mát thành lông tơ mịn: những ngóng đợi chú-trọng vào những cấp-thiết của ăn và mặc, hai bàn chân tôi quẩn-quanh trong một góc phố im-ả và cõi giới tâm-thức đòi-hỏi sự chiêm-nghiệm phức-tạp của liên-hệ người và người.  Ý-thức lặn sâu vào trong cõi tiềm-thức quên hẳn hướng bước của hai bàn chân: chợt sáng nay hai bàn chân tôi gọi tôi: "Đã định hướng được những bước chân bước tới chưa?"  Đi đâu thì cũng đến lúc phải về: định-mệnh cho cùng lắm được khoảng dưới "ba vạn sáu nghìn ngày".  Đã nửa đời người tôi mới ý-thức được sự cần-thiết của những bước đi của mình trên mặt của hành-tinh xanh đầy dẫy thị-phi, mặc-dù vũ-trụ vô-biên vẫn nung nguồn lửa ngùn-ngụt chẳng cần ai biết đến.  Cảm ơn hai bàn chân còn vững bước đi.
+
+Hoàng-Ân
+
+Chân Bước Theo Chân
+
+     Từ buổi sáng thức dậy còn bàng-hoàng trong dư-âm giấc mơ cuối, tôi đặt hai bàn chân trên mặt đất, và cho đến khi lên giường nằm ngủ, hai bàn chân tôi đưa tôi qua lại suốt một ngày.  Gót chân này bước đến rồi gót chân kia bước lên...thành một cuộc hành-trình dù trong nhà hay ngoài ngõ.  Mặt đất vững-vàng giữa phố-thị thuộc không-thời cưng-dưỡng tâm-linh ủy-mị, ươn-hèn của tôi.  Những khát-khao du-lịch thuở mới lớn: thèm chu-du sang Úc, sang Phi...từ khi định-cư ở xứ đại-cường-quốc Hoa-Kỳ là quê-hương thứ hai:  Ở mãi chẳng còn háo-hức mộng du-lịch, cho dù phần đông những người ở các quốc-gia đệ tam thế-giới ai cũng mơ giấc mơ hão-huyền của tiền rừng bạc biển tô bôi Mỹ-quốc như một thiên-đàng vật-chất.  Như loài kim-phượng từ thiên-đường kim-chi ngọc-diệp của tâm-tưởng thảng-hoặc rơi vào cõi thiên-nhiên của cây lá và suối trong, lâu dần giản-dị-hóa và lông kim-ngân trở nên tươi mát thành lông tơ mịn: những ngóng đợi chú-trọng vào những cấp-thiết của ăn và mặc, hai bàn chân tôi quẩn-quanh trong một góc phố im-ả và cõi giới tâm-thức đòi-hỏi sự chiêm-nghiệm phức-tạp của liên-hệ người và người.  Ý-thức lặn sâu vào trong cõi tiềm-thức quên hẳn hướng bước của hai bàn chân: chợt sáng nay hai bàn chân tôi gọi tôi: "Đã định hướng được những bước chân bước tới chưa?"  Đi đâu thì cũng đến lúc phải về: định-mệnh cho cùng lắm được khoảng dưới "ba vạn sáu nghìn ngày".  Đã nửa đời người tôi mới ý-thức được sự cần-thiết của những bước đi của mình trên mặt của hành-tinh xanh đầy dẫy thị-phi, mặc-dù vũ-trụ vô-biên vẫn nung nguồn lửa ngùn-ngụt chẳng cần ai biết đến.  Cảm ơn hai bàn chân còn vững bước đi.
